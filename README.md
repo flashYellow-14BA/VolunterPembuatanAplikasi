@@ -7,3 +7,4 @@ Silahkan gunakan format berikut:
 
 Berikut ini daftar volunter yang diterima:
 - Oon Arfiandwi, [oo.or.id](https.//oo.or.id).
+- Basthian Arisna, [Linkedin](https://www.linkedin.com/in/basthian-arisna-2b661817b/).
